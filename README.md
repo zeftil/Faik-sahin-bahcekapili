@@ -1,1 +1,0 @@
-# Faik-sahin-bahcekapili
